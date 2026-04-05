@@ -15,13 +15,13 @@ sdcs dc sdc sdc sdc sdc
  ds csdc sdc sdc sdcsdc sdc sdc sd
  sdc sdc sdc sdc sdcsdc dscsdcsd csdc
 DFBVDF  fgb fg bfgbfgbfgb fgb fgb 
-f gb
-fgb 
-f
-gb 
+f gbf nfgn fgn fgn fgn fgn f
+fgb fn fn fn fgn fgn fgn fgn
+ff nfgn fn fgn fgn fgn fg g
+gb f nfgn fgn fgn fgn fgn gnf
 fgbfgb fgb fgb fgb fg bfgb 
-fgb fg
-b fgb
-fg
-b 
+fgb fgf nfn fn fgn fgn fgn 
+b fgbfgn fgn fgn fgn fgn fn
+fgf nfgn fgn fnfnfn f nfn 
+b f nfgn fn fn fn fn fn 
 fgb fgb fgb fgb fgb f
