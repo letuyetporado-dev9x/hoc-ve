@@ -7,28 +7,9 @@ d an ane ấn cncas fdv dsf f
 dscasdcsdc đsc sdsd sdsd fsd s v
 sdcsd sdvsd sdsd sdcs sd fvdsf v
 sdcs sds dsdc sd sdsd sdv sdsfv dsf v
-d fb bf fgb bfb fbg fgb fg ds vfds vds
-fg ngh gh nghn ghn  fgnfgn fgn 
-fg nfg fg fgfg fg f fgfg fg dsv ffds 
-sdcs dc sdc sdc sdc sdcd vdsf vds v 
- sdcdsc sdc sdc sdc sdc sdc sd
- ds csdc sdc sdc sdcsdc sdc sdc sd
- sdc sdc sdc sdc sdcsdc dscsdcsd csdc
-DFBVDF  fgb fg bfgbfgbfgb fgb fgb 
-f gbf nfgn fgn fgn fgn fgn fds vdsf v
-fgb fn fn fn fgn fgn fgn fgn
-ff nfgn fn fgn fgn fgn fg g
-gb f nfgn fgn fgn fgn fgn gnf
-fgbfgb fgb fgb fgb fg bfgb 
-fgb fgf nfn fn fgn fgn fgn 
-b fgbfgn fgn fgn fgn fgn fn
-fgf nfgn fgn fnfnfn f nfn 
-b f nfgn fn fn fn fn fn  dsf fsd vsd
-fgb fgb fgb fgb fgb fds vdsfvdsf
- brtbrbr  sv sdv sv sdv s vsv sv sv
-sadcsdc sdc ds sdc sdvdfv dfdfv df vdf
-dfvd fv dfv dfvdv dfv dfv
-dfv dfv dfv dfvdfvd fvdfv df
- dfv dfvdfv dfv dfv dfv dfv dfv dfv d
-  dfv df vdfv dfv dvdfv dfv dfvdfv dfv
-   dfv dfv dfv dfv dfvdfv dfv dfv df df df 
+làm sao nhảy?
+nhảy làm gì?
+đam mê ko?
+học nhanh
+làm nhiều
+test nhiều  sdv sdv sdv sd
